@@ -31,11 +31,9 @@
 
 #### การทำงาน
 
-![](https://bc-410.000webhostapp.com/GET/ART201975168.jpg)
+![](https://bc-410.000webhostapp.com/GET/ART201975168.png)
 
-![](https://bc-410.000webhostapp.com/GET/76602209_608069313270220_632885498607566848_n.jpg)
 
-![](https://bc-410.000webhostapp.com/GET/4645.png)
 
 
 
